@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DheerajSrivatsaUppada
+- 👋 Hi, I’m @DheerajUppada
 - 👀 I’m interested in I don't know.
 - 🌱 I’m currently learning BTECH CSE (core)
 - 💞️ I’m looking to collaborate on i'll update it in future
