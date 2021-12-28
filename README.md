@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DheerajSrivatsaUppada
-- 👀 I’m interested in I don't know.
+- 👀 I’m interested in still discovering
 - 🌱 I’m currently learning BTECH CSE (core)
 - 💞️ I’m looking to collaborate on i'll update it in future
 - 📫 How to reach me duppada@gitam.in
